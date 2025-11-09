@@ -19,6 +19,7 @@
 ---
 
 ## Want to reach out to me?
-### Contact me via: [email](mailto:lolodotzip@hackclub.app), [Discord](https://discord.com/users/547101350450692142), or [guns.lol](https://guns.lol/lolodotzip) (to check all my socials basically)
+### Contact me via: [E-Mail](mailto:lolodotzip@hackclub.app), [Discord](https://discord.com/users/547101350450692142), or [Guns.lol](https://guns.lol/lolodotzip) (to check all my socials basically.)
 ### Have an amazing day, night, blood moon, whataver!!!
+
 
